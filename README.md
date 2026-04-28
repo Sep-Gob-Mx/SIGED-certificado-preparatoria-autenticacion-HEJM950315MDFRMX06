@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEJM950315MDFRMX06
+HEJM950315MDFRMX06
